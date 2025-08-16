@@ -14,4 +14,4 @@
 Criar sistemas para empresas e sites que ajudem pessoas, participando de projetos que incentivem **aprendizado contínuo e inovação**.
 
 📫 **Conecte-se comigo:**
-- [LinkedIn](www.linkedin.com/in/gustavo-oliveira-86b854228)
+- [LinkedIn](https://www.linkedin.com/in/gustavo-oliveira-86b854228)
